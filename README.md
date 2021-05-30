@@ -11,4 +11,4 @@
 ### Play games of course, and just hang out with my girl ;)
 
 ## Favorite Books
-### I enjoyed reading the witcher and Dune sagas.
+### I enjoyed reading the witcher and Dune sagas, and most recently the Lord of the rings trilogy.
